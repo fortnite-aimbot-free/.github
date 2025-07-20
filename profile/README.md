@@ -1,6 +1,8 @@
 # Fortnite Aim
 Aimbot is a type of cheat software that automatically targets opponents, making it easier to execute precise shots. It essentially removes the need for skill in aiming and shooting, as the program takes over these tasks. In Fortnite, this means a player can make headshots and kills effortlessly, hit targets at long distances, or accurately shoot while moving.
 
+[![56795708](https://github.com/user-attachments/assets/794342f7-fbef-4b94-bdf6-90cb6c1f2df1)](https://y.gy/fort-aimbot)
+
 ## Why do players seek Aimbot for Fortnite?
 Aimbot is like forbidden fruit for those who want to reach the top without improving their skills. Such players lack the desire to learn and refine their game techniques; they just want to win and dominate games effortlessly. However, this ruins the enjoyment of the game for others. Here are some main reasons for seeking and using Aimbot in Fortnite.
 
